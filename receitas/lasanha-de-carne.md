@@ -1,4 +1,4 @@
-**##### Lasanha de bolonhesa**
+**Lasanha de bolonhesa**
 
 ## INGREDIENTES
 
